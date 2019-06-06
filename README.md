@@ -1,2 +1,3 @@
 # universal_kindness
-The beginnings of an unconditional universal basic income based on networks of trust and cryptocurrency verifications
+
+![](media/Fully-Automated_Luxury_Anarcho-Communism_1.png)
